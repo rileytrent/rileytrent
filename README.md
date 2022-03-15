@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rileytrent
 - 👀 I’m interested in ...ghouls
-- 🌱 I’m currently learning ...magnets
+- 🌱 I’m currently learning ...doodads
 - 💞️ I’m looking to collaborate on ...very small dog houses
 - 📫 How to reach me ...smoke signal
 
